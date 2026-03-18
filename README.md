@@ -1,3 +1,5 @@
+[← Back to Reports|レポート一覧に戻る](https://github.com/choiizuka/reports-index)
+
 # Scientific-Proof-of-the-Divine
 Scientific Proof of the Divine
 
